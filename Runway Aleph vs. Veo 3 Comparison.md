@@ -4,7 +4,7 @@ AI video editing is booming, and two platforms stand out: **[Runway Aleph](https
 
 ---
 
-[![0814(1)-封面](https://github.com/user-attachments/assets/0143da38-b3d3-4f1b-9b60-0d5b97c15cc5)](https://youtube.com/shorts/wjUcEC_vdgA?si=ZZw8L3hyU_pGODtW)
+[<img width="509" height="636" alt="wechat_2025-09-20_211826_725" src="https://github.com/user-attachments/assets/55daa76f-26c4-4d9e-a34f-ccbd7e254ee3" />](https://youtube.com/shorts/wjUcEC_vdgA?si=ZZw8L3hyU_pGODtW)
 
 ## 🔎 Introduction
 
